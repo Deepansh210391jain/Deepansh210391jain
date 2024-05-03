@@ -16,7 +16,6 @@
 
 - 📫 How to reach me **deepanshjain210391@acropolis.in**
  
-- 💬   Ask me about anything <a href="https://github.com/mukundsolanki/mukundsolanki/issues">Here</a>
 
 
 # 🌐 Socials:
